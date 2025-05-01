@@ -1,4 +1,4 @@
-# Hi, I'm Laia 👋  
+# Hi, I'm Laiah 👋  
 
 ## 🚀 About Me  
 - 🔭 I’m currently working on **web development** and getting my foot in the door.  
